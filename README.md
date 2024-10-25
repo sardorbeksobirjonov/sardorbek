@@ -1,0 +1,2 @@
+# sardorbek
+busaytdan foydalanish oson
